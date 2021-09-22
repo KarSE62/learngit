@@ -1,2 +1,2 @@
 Kanokphon Phuangwatpho
-SE NPRU
+SE NPRU 62
